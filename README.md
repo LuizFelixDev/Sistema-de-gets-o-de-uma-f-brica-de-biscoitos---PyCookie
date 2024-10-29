@@ -6,4 +6,4 @@ ainda não possuía conhecimento sobre versionamento de código. Mas se sentir i
 estudá-lo, se tiver se interessado pelo meu trabalho meus dados estão logo abaixo.
 
 Dados:
-Programador - Luiz Henrique Felix Guedes, Instagram - luiz.felix07, Whatsapp - (Chamar pelo instagram).
+Programador - Luiz Henrique Felix Guedes, Instagram - luiz.felix07, Whatsapp - (Chamar pelo instagram), E-mail - luizhenriquefelix138@gmail.com.
